@@ -1,4 +1,4 @@
-### Hi there
+### Hi there 👋
 
 My name is Alfredo, i'm currently studying Ingeniería Civil Informatica (Computer Engineering) at Adolfo Ibáñez University in Chile.
 I'm a big fan of rhythm games and shooters.
