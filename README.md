@@ -11,5 +11,5 @@ On this profile, I will be uploading most of the assignments and projects I do a
 - **Esports**
 
 ## Contact
-- [Email](alfredohv26@gmail.com)
+- Email: `alfredohv26@gmail.com`
 - Discord: `alfredowo`
