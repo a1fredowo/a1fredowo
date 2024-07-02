@@ -12,4 +12,4 @@ On this profile, I will be uploading most of the assignments and projects I do a
 
 ## Contact
 - [Email](alfredohv26@gmail.com)
-- [Discord](alfredowo)
+- Discord: `alfredowo`
